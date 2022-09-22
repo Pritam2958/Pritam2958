@@ -1,4 +1,8 @@
 ### _Hi there 👋_
+NO MATTER WHAT HAPPENS, ALWAYS KNOW THREE THING --<br />
+**_YOU ARE THE BEST_**<br />
+**_NO ONE CAN DEFEAT YOU_**<br />
+**_YOU ARE UNSTOPPABLE_**
 
 <ol>
 <li><h4>Name: Pritam Santra</h4></li>
